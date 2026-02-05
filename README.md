@@ -7,7 +7,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀Bday is June X and im 14
 
 
-Silly lil turtle   <img width="250" height="300" alt="turtle_PNG68" src="https://github.com/user-attachments/assets/458ba574-0607-4bed-9382-6e252a8d816d" />   [𝕾𝖙𝖗𝖆𝖜𝖕𝖆𝖌𝖊](https://badbabywannacatchmeoutsideee.straw.page/)
+Silly lil turtle   <img width="250" height="300" alt="turtle_PNG68" src="https://github.com/user-attachments/assets/458ba574-0607-4bed-9382-6e252a8d816d" />   [𝕾𝖙𝖗𝖆𝖜𝖕𝖆𝖌𝖊](https://italy-southkoreaaaa.straw.page/)
 
 ![1000004601](https://github.com/user-attachments/assets/fd47df1f-9c8b-4861-8d40-ca17ff7a311e)
 
